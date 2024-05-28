@@ -8,4 +8,5 @@ meu nome é Bianca Adriane 💙 🐈
   Caso queira entrar em contato comigo : 00001079819812sp@al.educacao.sp.gov.br
   
 
+
   ![.](https://media1.tenor.com/m/5hq-_Qv9nJIAAAAd/peanuts-charlie.gif)
